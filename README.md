@@ -1,1 +1,0 @@
-# Aynuur.github.io
